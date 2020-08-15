@@ -2,6 +2,12 @@ Bem-vindo a Voos.com.br o melhor site de viagens do Brasil
 
 Voos.com.br é um site de viagens gratuito que compara milhões de passagens no Brasil e no mundo todo.
 
+Voos.com.br é um site de viagens gratuito que compara milhões de passagens no Brasil e no mundo todo.
+
+Voos.com.br é um site de viagens gratuito que compara milhões de passagens no Brasil e no mundo todo.
+
+Voos.com.br é um site de viagens gratuito que compara milhões de passagens no Brasil e no mundo todo.
+
 Somos completamente independentes das companhias aéreas e agências de viagem, o que significa que damos aos viajantes uma visão completa das opções de viagem disponíveis no mercado. Com um click, você será redirecionado para o site que escolheu para completar a reserva diretamente com a cia aérea ou agência de viagem.
 
 Com um click, você será redirecionado para o site que escolheu para completar a reserva diretamente com a cia aérea ou agência de viagem.
